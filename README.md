@@ -8,7 +8,7 @@
 `ERIC THE DIGITAL CRAFTSMAN👨🏽‍💻
 (University Lecturer, Consultant & IT Support in IT & MultiMedia`
 
-I am an IT and Multimedia Specialist, Consultant, University Lecturer, and Head of Riara University Studio, all with 15+ years of experience. I specialize in root cause analysis, identifying and resolving tier i—iii issues, IT Support/Cloud/HelpDesk Analyst NOC Technician, customer relationship management CRM, designing ticketing tools, and end-user operations and training. Alternatively, I also possess vast experience in Audio and video production and documentary filmmaking…. 
+I am an IT and Multimedia Specialist and Consultant with 15+ years of experience. I specialize in Student or Customer in Relationship Management CRM, IT Support/Cloud/Helpdesk, Analyst NOC (Network Operations Center), Technician in root cause analysis; tier i, ii & iii issues, designing & deploying ticketing tools and systems, Active Directory and end-user operations. Alternatively, I also possess vast experience in Communication and MultiMedia, Audio/Video/Broadcasting Production, Special Effects (SFX), and Documentary filmmaking…. 
 
    <p align="left">
       <a href="https://www.youtube.com/c/fknight?sub_confirmation=1">
